@@ -1,1 +1,2 @@
-![NastyUnripeKinglet-size_restricted](https://user-images.githubusercontent.com/67060060/131304889-4e0caa7d-47bb-4626-abec-a8dfe1384941.gif)
+</br><p align='center'>
+<img src="https://user-images.githubusercontent.com/39688690/118999060-e9aba180-b9c4-11eb-8a97-71fa4c338080.gif" width="70%"/></p>" width="70%"/></p>
